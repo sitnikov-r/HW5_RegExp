@@ -57,5 +57,9 @@
 - В README приложена музыка - **4 доп. балла** (8 доп. баллов если в вашем исполнении)
 
 
-
 Удачи! ✨✨
+
+## Музыка
+
+1. ATARASHII GAKKO! - Tokyo Calling: https://www.youtube.com/watch?v=pHMH408ltEM
+2. Radiohead - Let Down (Remastered): https://www.youtube.com/watch?v=ZVgHPSyEIqk
